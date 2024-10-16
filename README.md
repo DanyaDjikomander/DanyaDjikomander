@@ -9,4 +9,6 @@
 -typificial looking
 DanyaDjikomander/DanyaDjikomander is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+--->Legaing habkin priwate in ghost (fast trull)
+-fagnift techman tab key moving focus
+-Materials ganemons left focoos
